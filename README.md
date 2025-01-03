@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TechnoNauts7
 - 👀 I’m interested in ... Tech, Cybersecurity, Ai, Anime...
-- 🌱 I’m currently learning ... BCA 
+- 🌱 I’m currently Pursuing ... BCA 
 - 💞️ I Want To Be A Successful Ethical Hacker
 - 📫 How to reach me ... ---
 
